@@ -1,0 +1,1 @@
+Link de miro -> https://miro.com/welcomeonboard/V2R0Y0ZCTGZpYWQwV1dRdXI0Z2RDUEUwb2xjb2F4cmZWcFc4NGdiSDVPWFZrV3lJVFVMdzl4SnNIS3RDazhUWnwzNDU4NzY0NTE5NTYxNzgzODE3?invite_link_id=272192662959
